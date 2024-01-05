@@ -1,5 +1,5 @@
 - 👋🏻 Hi, I’m @VanyaMohammad
-- 👩🏻‍💻 I’m interested in Reading, Coding And Cats.
+- 👩🏻‍💻 I’m interested in Reading, Coding, Food, Football, F1 and Cats.
 - 😸 I’m currently learning C++.
 - 📫 How to reach me @vmqiu220356@uniq.edu.iq
 
